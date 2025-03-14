@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Twisted66
-- 👀 I’m interested in Networking CyberSecurity Gaming
+- 👀 I’m interested in 
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
